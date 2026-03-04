@@ -1,0 +1,2 @@
+# Zapret-NO-OFFICIAL-with-launcher
+Zapret (NO OFFICIAL) with launcher. IT ISNT OFFICIAL ZAPRET, IS USERS VERSION WITH LISTS
