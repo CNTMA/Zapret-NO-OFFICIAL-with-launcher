@@ -17,3 +17,11 @@ RUSSIAN
 Я снимаю с себя всякую ответственность
 , если Flowseal хочет поговорить со мной об этом, пожалуйста, напишите мне в telegram @EPST4iN
 
+
+
+
+
+
+
+https://i.ytimg.com/vi/N3N2Yc6Q5Fw/maxresdefault.jpg
+
