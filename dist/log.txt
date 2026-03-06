@@ -1,0 +1,4 @@
+started
+create zapret_on
+create zapret_off
+zapret off
